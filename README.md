@@ -10,5 +10,6 @@ i don't understand it..
 I want the T-Shirt!
 let's crack it..
 let's code !!!
-Never Give Up
+Never Give Up 
 This world shall know pain
+Wind Style Rasengan
