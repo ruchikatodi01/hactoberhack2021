@@ -16,3 +16,4 @@ Wind Style Rasengan
 Six Paths of Painp
 Eat Sleep Bgmi Repeat
 life is fucked up!
+life is so boring without you 
