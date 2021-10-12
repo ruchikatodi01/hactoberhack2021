@@ -3,7 +3,8 @@ hey hactober
 stay home stay safe
 everything gonna be fine!!!
 hey let's code it.
-Hello Khurshid
-Hello Dipak!!
-Hello Ashara Di.
+
+
+
 I want the T-Shirt!
+let's crack it
