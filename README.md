@@ -15,3 +15,4 @@ This world shall know pain
 Wind Style Rasengan
 Six Paths of Painp
 Eat Sleep Bgmi Repeat
+life is fucked up!
