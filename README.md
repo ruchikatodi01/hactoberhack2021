@@ -20,3 +20,4 @@ life is so boring without you
 my life my rules
 karma is a 
 love yourself
+dont let the snapstreak die
