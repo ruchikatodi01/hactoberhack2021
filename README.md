@@ -10,3 +10,4 @@ i don't understand it..
 I want the T-Shirt!
 let's crack it..
 let's code !!!
+Never Give Up
