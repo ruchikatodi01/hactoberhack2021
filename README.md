@@ -23,3 +23,4 @@ love yourself
 dont let the snapstreak die
 fuck you
 we can't choose who we fall for
+peace
