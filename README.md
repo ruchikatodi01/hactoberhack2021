@@ -25,3 +25,4 @@ dont let the snapstreak die
 we can't choose who we fall for
 peace
 and all the pieces fall right into place
+believe in yourself
