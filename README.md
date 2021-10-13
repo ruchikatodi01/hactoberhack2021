@@ -1,7 +1,7 @@
 # hactoberhack2021✍️
 hey hactober
 stay home stay safe
-everything gonna be fine!!!
+
 hey let's code it.
 let me down slowly..
 i don't understand it..
@@ -22,3 +22,4 @@ karma is a
 love yourself
 dont let the snapstreak die
 fuck you
+we can't choose who we fall for
